@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @manuelConte
+- 👋 Hi, I’m @naomotoEuropa
 - 💼 Naomoto Europa Srl
